@@ -1,0 +1,2 @@
+# Minegame
+My stake
